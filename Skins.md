@@ -60,7 +60,7 @@
 # [mathi ensalada v1.5](https://waa.ai/q7ph)
 ![](https://osu.ppy.sh/ss/17351806/7e59)
 
-# [#Azer+Emilia+2018(CK](https://waa.ai/q7pd) 
+# [#Azer+Emilia+2018(CK)](https://waa.ai/q7pd) 
 ![](https://osu.ppy.sh/ss/17351765/e5b3)
 
 # [I'm Rafis - [HDDT] Gamma ↑Buff↑](https://waa.ai/q7pp)
