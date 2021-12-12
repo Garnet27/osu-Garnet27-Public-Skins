@@ -36,11 +36,20 @@
 # [Shige+Azer Private ver](https://waa.ai/q7p0)
 ![](https://osu.ppy.sh/ss/17351443/8ac8)
 
+# [idke 1.21](https://waa.ai/q7pI)
+![](https://osu.ppy.sh/ss/17351702/2cec)
+
+# [#azer8dusk](https://waa.ai/q7pi)
+![](https://osu.ppy.sh/ss/17351747/7bdc)
+
 # [-aireudt new slider](https://waa.ai/q7pF)
 ![](https://osu.ppy.sh/ss/17351408/8947)
 
 # [RafisHDcircleEdit](https://waa.ai/q7pl)
 ![](https://osu.ppy.sh/ss/17351401/7113)
+
+# [beep](https://waa.ai/q7pD)
+![](https://osu.ppy.sh/ss/17351759/e6db)
 
 # [Amaestricowo](https://waa.ai/q7pK)
 ![](https://osu.ppy.sh/ss/17351614/4802)
@@ -59,6 +68,9 @@
 
 # [morgan+pink](https://waa.ai/q7ps)
 ![](https://osu.ppy.sh/ss/17351541/23f0)
+
+# [Toke - Natsukihina](https://waa.ai/q7pW)
+![](https://osu.ppy.sh/ss/17351733/2329)
 
 # [WillyHvickEdit](https://waa.ai/q7pT) 
 ![](https://osu.ppy.sh/ss/17351387/6962)
