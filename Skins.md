@@ -21,6 +21,9 @@
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
+# [BlooXoo](https://waa.ai/q7p6)
+![](https://osu.ppy.sh/ss/17351781/c58a)
+
 # [#azr8technocandy](https://waa.ai/q7pV)
 ![](https://osu.ppy.sh/ss/17351560/46dc)
 
@@ -42,6 +45,21 @@
 # [#azer8dusk](https://waa.ai/q7pi)
 ![](https://osu.ppy.sh/ss/17351747/7bdc)
 
+# [aetrnaMikoto unofficial Dec.17](https://waa.ai/q7p1)
+![](https://osu.ppy.sh/ss/17351774/be19)
+
+# [aetrna (Aug-2020)](https://waa.ai/q7pM)
+![](https://osu.ppy.sh/ss/17351770/1528)
+
+# [mathi ensalada v1.5](https://waa.ai/q7ph)
+![](https://osu.ppy.sh/ss/17351806/7e59)
+
+# [#Azer+Emilia+2018(CK](https://waa.ai/q7pd) 
+![](https://osu.ppy.sh/ss/17351765/e5b3)
+
+# [I'm Rafis - [HDDT] Gamma ↑Buff↑](https://waa.ai/q7pp)
+![](https://osu.ppy.sh/ss/17351836/ed0f)
+
 # [-aireudt new slider](https://waa.ai/q7pF)
 ![](https://osu.ppy.sh/ss/17351408/8947)
 
@@ -60,8 +78,20 @@
 # [Seoul++ 16-9](https://waa.ai/q7pH)
 ![](https://osu.ppy.sh/ss/17351603/5c0f)
 
+# [Cookiezi (04-2017+trail)](https://waa.ai/q7pN)
+![](https://osu.ppy.sh/ss/17351798/e186)
+
+# [Seouless+v7+-+Momoko+](https://waa.ai/q7pP)
+![](https://osu.ppy.sh/ss/17351811/3a54)
+
 # [-+Shige+Seoul+(16-9)+-](https://waa.ai/q7pU)
 ![](https://osu.ppy.sh/ss/17351608/5979)
+
+# [The Gabe Skin](https://waa.ai/q7pZ)
+![](https://osu.ppy.sh/ss/17351840/91d2)
+
+# [ThinkingWithBlobs](https://waa.ai/q7p7)
+![](https://osu.ppy.sh/ss/17351847/9e3f)
 
 # [New Default Skin](https://waa.ai/q7py)
 ![](https://osu.ppy.sh/ss/17351595/2dc9)
@@ -71,6 +101,9 @@
 
 # [Toke - Natsukihina](https://waa.ai/q7pW)
 ![](https://osu.ppy.sh/ss/17351733/2329)
+
+# [Cxu](https://waa.ai/q7pg)
+![](https://osu.ppy.sh/ss/17351790/843b)
 
 # [WillyHvickEdit](https://waa.ai/q7pT) 
 ![](https://osu.ppy.sh/ss/17351387/6962)
