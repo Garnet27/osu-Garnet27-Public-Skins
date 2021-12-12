@@ -108,5 +108,5 @@
 # [WillyHvickEdit](https://waa.ai/q7pT) 
 ![](https://osu.ppy.sh/ss/17351387/6962)
 
-# [Kamui](https://https://waa.ai/q7pS)
+# [Kamui](https://waa.ai/q7pS)
 ![](https://osu.ppy.sh/ss/17351514/8baf)
