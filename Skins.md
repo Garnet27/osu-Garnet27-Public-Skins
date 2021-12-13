@@ -9,7 +9,7 @@
 # [- #❈ 春日 未来 Kasuga Mirai ❈# -](https://waa.ai/ejVT)
 ![](https://osu.ppy.sh/ss/17351478/882f)
 
-# [- #◈ [TAKA]+Tobisawa Misaki ◈# - Final](https://waa.ai/qYXt)
+# [- #◈ [TAKA]+Tobisawa Misaki ◈# - Final](https://waa.ai/qYXd)
 ![](https://osu.ppy.sh/ss/17353971/0813)
 
 # [- #◈ [TAKA]+Tobisawa Misaki ◈# - Rafis Edit](https://waa.ai/q7p5)
