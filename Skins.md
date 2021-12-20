@@ -27,9 +27,6 @@
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
-# [BlooXoo](https://waa.ai/q7p6)
-![](https://osu.ppy.sh/ss/17351781/c58a)
-
 # [#azr8technocandy](https://waa.ai/q7pV)
 ![](https://osu.ppy.sh/ss/17351560/46dc)
 
@@ -59,9 +56,6 @@
 
 # [mathi ensalada v1.5](https://waa.ai/q7ph)
 ![](https://osu.ppy.sh/ss/17351806/7e59)
-
-# [#Azer+Emilia+2018(CK)](https://waa.ai/q7pd) 
-![](https://osu.ppy.sh/ss/17351765/e5b3)
 
 # [I'm Rafis - [HDDT] Gamma ↑Buff↑](https://waa.ai/q7pp)
 ![](https://osu.ppy.sh/ss/17351836/ed0f)
