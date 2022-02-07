@@ -1,4 +1,4 @@
-# Garnet27 Public Skin Compilation
+# TAKA1025 Public Skin Compilation
 
 # [- #❃ 北上麗花 Kitakami Reika ❃# - V2](https://waa.ai/t1dK)
 ![](https://osu.ppy.sh/ss/17351458/e455)
