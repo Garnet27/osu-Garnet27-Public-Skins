@@ -28,6 +28,7 @@
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
 # flansl][(https://puu.sh/IGBvE/3ad4385df8.osk)
+![](https://osu.ppy.sh/ss/17531895/03c6)
 
 # [#azr8technocandy](https://waa.ai/q7pV)
 ![](https://osu.ppy.sh/ss/17351560/46dc)
