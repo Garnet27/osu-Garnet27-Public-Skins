@@ -27,7 +27,7 @@
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
-# flansl][(https://puu.sh/IGBvE/3ad4385df8.osk)
+# [flansl](https://puu.sh/IGBvE/3ad4385df8.osk)
 ![](https://osu.ppy.sh/ss/17531895/03c6)
 
 # [#azr8technocandy](https://waa.ai/q7pV)
