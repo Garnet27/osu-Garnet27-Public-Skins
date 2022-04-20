@@ -1,5 +1,8 @@
 # Garnet27 Public Skin Compilation
 
+# [](- #♧ 潤羽るしあ Uruha Rushia ♧# -]
+![](https://osu.ppy.sh/ss/17745873/5756)
+
 # [- #❃ 北上麗花 Kitakami Reika ❃# - V2](https://waa.ai/t1dK)
 ![](https://osu.ppy.sh/ss/17351458/e455)
 
