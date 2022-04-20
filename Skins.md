@@ -27,9 +27,6 @@
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
-# [flansl](https://puu.sh/IGBvE/3ad4385df8.osk)
-![](https://osu.ppy.sh/ss/17531895/03c6)
-
 # [#azr8technocandy](https://waa.ai/q7pV)
 ![](https://osu.ppy.sh/ss/17351560/46dc)
 
@@ -59,6 +56,9 @@
 
 # [mathi ensalada v1.5](https://waa.ai/q7ph)
 ![](https://osu.ppy.sh/ss/17351806/7e59)
+
+# [New+Default+Skin_DT](https://waa.ai/fCju)
+![](https://osu.ppy.sh/ss/17745713/be78)
 
 # [I'm Rafis - [HDDT] Gamma ↑Buff↑](https://waa.ai/q7pp)
 ![](https://osu.ppy.sh/ss/17351836/ed0f)
