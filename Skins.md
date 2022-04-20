@@ -27,6 +27,9 @@
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
+# [Seouless+Trinoline_](https://waa.ai/fCjx)
+![](https://osu.ppy.sh/ss/17745832/5ad4)
+
 # [Trinoline -Zane-](https://waa.ai/fCjJ)
 ![](https://osu.ppy.sh/ss/17745819/abd6)
 
