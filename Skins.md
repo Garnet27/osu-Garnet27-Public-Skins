@@ -138,6 +138,9 @@
 # [fairfax v2.b 16-9](https://waa.ai/f27o)
 ![](https://osu.ppy.sh/ss/17973111/6030)
 
+# [- kodama - ryohka _ (Edit)](https://waa.ai/f27g)
+![](https://osu.ppy.sh/ss/17973285/e0cf)
+
 # [The Gabe Skin](https://waa.ai/q7pZ)
 ![](https://osu.ppy.sh/ss/17351840/91d2)
 
