@@ -90,6 +90,9 @@
 # [Amaestricowo](https://waa.ai/q7pK)
 ![](https://osu.ppy.sh/ss/17351614/4802)
 
+# [Cookiezi 29 2018-03-18.osk](https://waa.ai/f274)
+![](https://osu.ppy.sh/ss/17973067/017a)
+
 # [Seoul++ 16-9 Toy](https://waa.ai/q7p2)
 ![](https://osu.ppy.sh/ss/17351659/02b4)
 
