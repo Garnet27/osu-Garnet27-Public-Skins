@@ -132,6 +132,9 @@
 # [Toke - Natsukihina](https://waa.ai/q7pW)
 ![](https://osu.ppy.sh/ss/17351733/2329)
 
+#[ReesesPuffs Skin v1](https://waa.ai/f27C)
+![](https://osu.ppy.sh/ss/17973187/5245)
+
 # [Cxu](https://waa.ai/q7pg)
 ![](https://osu.ppy.sh/ss/17351790/843b)
 
