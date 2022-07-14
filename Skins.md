@@ -72,6 +72,9 @@
 # [- 『Kokoro』 Touhou on osu! -](https://waa.ai/f27i)
 ![](https://osu.ppy.sh/ss/17973226/5030)
 
+# [wew lad](https://waa.ai/f27D)
+![](https://osu.ppy.sh/ss/17973239/4659)
+
 # [idke 1.21](https://waa.ai/q7pI)
 ![](https://osu.ppy.sh/ss/17351702/2cec)
 
