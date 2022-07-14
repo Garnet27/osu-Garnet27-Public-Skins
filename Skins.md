@@ -24,6 +24,9 @@
 # [ZeisenDASH Edit](https://waa.ai/uVSR)
 ![](https://osu.ppy.sh/ss/17351675/d59b)
 
+# [Garnet27+-gameplay Pure](https://waa.ai/f2Zr)
+![](https://osu.ppy.sh/ss/17973023/5f2f)
+
 # [Garnet27+-gameplay v2](https://waa.ai/TQrO)
 ![](https://osu.ppy.sh/ss/17351525/5d81)
 
