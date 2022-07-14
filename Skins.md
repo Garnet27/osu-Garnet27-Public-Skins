@@ -36,6 +36,9 @@
 # [tekkito+vaxei](https://waa.ai/f2Zn)
 ![](https://osu.ppy.sh/ss/17973033/4209)
 
+# [luca](https://waa.ai/f27u)
+![](https://osu.ppy.sh/ss/17973149/a0fc)
+
 # [Seouless+Trinoline_](https://waa.ai/fCjx)
 ![](https://osu.ppy.sh/ss/17745832/5ad4)
 
