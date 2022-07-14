@@ -36,6 +36,9 @@
 # [tekkito+vaxei](https://waa.ai/f2Zn)
 ![](https://osu.ppy.sh/ss/17973033/4209)
 
+# [MonkoEdit](https://waa.ai/f27F)
+![](https://osu.ppy.sh/ss/17973166/f47f)
+
 # [luca](https://waa.ai/f27u)
 ![](https://osu.ppy.sh/ss/17973149/a0fc)
 
