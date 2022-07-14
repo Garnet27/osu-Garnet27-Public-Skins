@@ -123,6 +123,9 @@
 # [The Gabe Skin](https://waa.ai/q7pZ)
 ![](https://osu.ppy.sh/ss/17351840/91d2)
 
+# [- JesusOmega {Holy Fuck} 『Planets』 -](https://waa.ai/f272)
+![](https://osu.ppy.sh/ss/17973219/93df)
+
 # [William Smith (slap sfx edit](https://waa.ai/f27R)
 ![](https://osu.ppy.sh/ss/17973210/7fe4)
 
