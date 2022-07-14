@@ -33,6 +33,9 @@
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
+# [tekkito+vaxei](https://waa.ai/f2Zn)
+![](https://osu.ppy.sh/ss/17973033/4209)
+
 # [Seouless+Trinoline_](https://waa.ai/fCjx)
 ![](https://osu.ppy.sh/ss/17745832/5ad4)
 
