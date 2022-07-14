@@ -27,6 +27,9 @@
 # [Garnet27+-gameplay Pure](https://waa.ai/f2Zr)
 ![](https://osu.ppy.sh/ss/17973023/5f2f)
 
+# [Garnet27+-gameplay refia](https://waa.ai/f271)
+![](https://osu.ppy.sh/ss/17973251/b275)
+
 # [Garnet27+-gameplay v2](https://waa.ai/TQrO)
 ![](https://osu.ppy.sh/ss/17351525/5d81)
 
