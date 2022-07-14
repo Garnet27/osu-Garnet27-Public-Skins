@@ -30,6 +30,9 @@
 # [Garnet27+-gameplay v2](https://waa.ai/TQrO)
 ![](https://osu.ppy.sh/ss/17351525/5d81)
 
+# [Garnet27+-gameplay Trinoline](https://waa.ai/f27d)
+![](https://osu.ppy.sh/ss/17973246/32d2)
+
 # [Seoul++ 16-9 Garnet27+Yaong](https://waa.ai/f278)
 ![](https://osu.ppy.sh/ss/17973222/5bf2)
 
