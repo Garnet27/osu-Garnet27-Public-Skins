@@ -42,6 +42,9 @@
 # [luca](https://waa.ai/f27u)
 ![](https://osu.ppy.sh/ss/17973149/a0fc)
 
+# [Zzz](https://waa.ai/f27w)
+![](https://osu.ppy.sh/ss/17973201/e61a)
+
 # [Seouless+Trinoline_](https://waa.ai/fCjx)
 ![](https://osu.ppy.sh/ss/17745832/5ad4)
 
