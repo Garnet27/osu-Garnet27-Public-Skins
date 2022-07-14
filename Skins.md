@@ -69,6 +69,9 @@
 # [Shige+Azer Private ver](https://waa.ai/q7p0)
 ![](https://osu.ppy.sh/ss/17351443/8ac8)
 
+# [- 『Kokoro』 Touhou on osu! -](https://waa.ai/f27i)
+![](https://osu.ppy.sh/ss/17973226/5030)
+
 # [idke 1.21](https://waa.ai/q7pI)
 ![](https://osu.ppy.sh/ss/17351702/2cec)
 
