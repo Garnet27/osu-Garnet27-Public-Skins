@@ -57,6 +57,9 @@
 # [Zzz](https://waa.ai/f27w)
 ![](https://osu.ppy.sh/ss/17973201/e61a)
 
+# [- + shirousa](https://waa.ai/f27N)
+![](https://osu.ppy.sh/ss/17973288/cfb1)
+
 # [Seouless+Trinoline](https://waa.ai/fCjx)
 ![](https://osu.ppy.sh/ss/17745832/5ad4)
 
