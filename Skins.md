@@ -123,6 +123,9 @@
 # [The Gabe Skin](https://waa.ai/q7pZ)
 ![](https://osu.ppy.sh/ss/17351840/91d2)
 
+# [William Smith (slap sfx edit](https://waa.ai/f27R)
+![](https://osu.ppy.sh/ss/17973210/7fe4)
+
 # [ThinkingWithBlobs](https://waa.ai/q7p7)
 ![](https://osu.ppy.sh/ss/17351847/9e3f)
 
