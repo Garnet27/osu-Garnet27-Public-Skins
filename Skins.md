@@ -57,6 +57,9 @@
 ![- #-K- HOSHIMACHI SUISEI - LUCID DREAM](https://waa.ai/f6zR)
 ![](https://osu.ppy.sh/ss/18144351/9584)
 
+![- [AK] Akshiro v1.0 (aristia) -](https://waa.ai/f6zQ)
+![](https://osu.ppy.sh/ss/18144354/09dd)
+
 # [MonkoEdit](https://waa.ai/f27F)
 ![](https://osu.ppy.sh/ss/17973166/f47f)
 
