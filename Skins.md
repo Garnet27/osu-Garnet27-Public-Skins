@@ -123,6 +123,9 @@
 # [wew lad](https://waa.ai/f27D)
 ![](https://osu.ppy.sh/ss/17973239/4659)
 
+# [Joie's Seoul v9 x owoTuna + whale](https://waa.ai/f6zg)
+![](https://osu.ppy.sh/ss/18144437/2232)
+
 # [idke 1.21](https://waa.ai/q7pI)
 ![](https://osu.ppy.sh/ss/17351702/2cec)
 
