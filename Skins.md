@@ -57,6 +57,9 @@
 # [- 『XooMoon』 - Lite](https://waa.ai/f6z2)
 ![](https://osu.ppy.sh/ss/18144362/c789)
 
+# [# - [HRK] - 百鬼ネ DECADENCE](https://waa.ai/f6zB)
+![](https://osu.ppy.sh/ss/18144374/f2b6)
+
 # [- #-K- HOSHIMACHI SUISEI - LUCID DREAM](https://waa.ai/f6zR)
 ![](https://osu.ppy.sh/ss/18144351/9584)
 
