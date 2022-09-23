@@ -81,6 +81,9 @@
 # [《Oka》 khz](https://waa.ai/f6z8)
 ![](https://osu.ppy.sh/ss/18144379/c40c)
 
+# [mojobojo](https://waa.ai/f6zN)
+![](https://osu.ppy.sh/ss/18144447/df58)
+
 # [⌞ও SatonoDiamond _ Mastasz ও⌝](https://waa.ai/f6zM)
 ![](https://osu.ppy.sh/ss/18144406/d13b)
 
