@@ -63,6 +63,9 @@
 # [- #-K- HOSHIMACHI SUISEI - LUCID DREAM](https://waa.ai/f6zR)
 ![](https://osu.ppy.sh/ss/18144351/9584)
 
+# [-# [Kagerou Project] Kozakura Marry 小桜茉莉 #-](https://waa.ai/f6zI)
+![](https://osu.ppy.sh/ss/18144377/0e7e)
+
 # [- [AK] Akshiro v1.0 (aristia) -](https://waa.ai/f6zQ)
 ![](https://osu.ppy.sh/ss/18144354/09dd)
 
