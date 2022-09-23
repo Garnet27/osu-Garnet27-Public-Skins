@@ -54,6 +54,9 @@
 # [- # [神里綾華] Ayaka -](https://waa.ai/f6zU)
 ![](https://osu.ppy.sh/ss/18144342/7598)
 
+![- #-K- HOSHIMACHI SUISEI - LUCID DREAM](https://waa.ai/f6zR)
+![](https://osu.ppy.sh/ss/18144351/9584)
+
 # [MonkoEdit](https://waa.ai/f27F)
 ![](https://osu.ppy.sh/ss/17973166/f47f)
 
