@@ -48,6 +48,9 @@
 # [tekkito+vaxei](https://waa.ai/f2Zn)
 ![](https://osu.ppy.sh/ss/17973033/4209)
 
+# [- # [神里綾華] Ayaka -](https://waa.ai/f6zU)
+![](https://osu.ppy.sh/ss/18144342/7598)
+
 # [MonkoEdit](https://waa.ai/f27F)
 ![](https://osu.ppy.sh/ss/17973166/f47f)
 
