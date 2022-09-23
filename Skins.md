@@ -66,6 +66,9 @@
 # [« ★ F u w a ★ »](https://waa.ai/f6zD)
 ![](https://osu.ppy.sh/ss/18144394/4383)
 
+# [« prjct. X »](https://waa.ai/f6zd)
+![](https://osu.ppy.sh/ss/18144398/4790)
+
 # [-# [Kagerou Project] Kozakura Marry 小桜茉莉 #-](https://waa.ai/f6zI)
 ![](https://osu.ppy.sh/ss/18144377/0e7e)
 
