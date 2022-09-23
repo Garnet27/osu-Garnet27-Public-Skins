@@ -54,10 +54,13 @@
 # [- # [神里綾華] Ayaka -](https://waa.ai/f6zU)
 ![](https://osu.ppy.sh/ss/18144342/7598)
 
-![- #-K- HOSHIMACHI SUISEI - LUCID DREAM](https://waa.ai/f6zR)
+# [- 『XooMoon』 - Lite](https://waa.ai/f6z2)
+![](https://osu.ppy.sh/ss/18144362/c789)
+
+# [- #-K- HOSHIMACHI SUISEI - LUCID DREAM](https://waa.ai/f6zR)
 ![](https://osu.ppy.sh/ss/18144351/9584)
 
-![- [AK] Akshiro v1.0 (aristia) -](https://waa.ai/f6zQ)
+# [- [AK] Akshiro v1.0 (aristia) -](https://waa.ai/f6zQ)
 ![](https://osu.ppy.sh/ss/18144354/09dd)
 
 # [MonkoEdit](https://waa.ai/f27F)
