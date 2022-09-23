@@ -69,6 +69,9 @@
 # [- [AK] Akshiro v1.0 (aristia) -](https://waa.ai/f6zQ)
 ![](https://osu.ppy.sh/ss/18144354/09dd)
 
+# [《Oka》 khz](https://waa.ai/f6z8)
+![](https://osu.ppy.sh/ss/18144379/c40c)
+
 # [MonkoEdit](https://waa.ai/f27F)
 ![](https://osu.ppy.sh/ss/17973166/f47f)
 
