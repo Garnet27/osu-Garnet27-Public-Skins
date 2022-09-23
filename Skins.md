@@ -75,6 +75,9 @@
 # [- [AK] Akshiro v1.0 (aristia) -](https://waa.ai/f6zQ)
 ![](https://osu.ppy.sh/ss/18144354/09dd)
 
+# [Hortus (Shiki)](https://waa.ai/f6z6)
+![](https://osu.ppy.sh/ss/18144430/1e8a)
+
 # [《Oka》 khz](https://waa.ai/f6z8)
 ![](https://osu.ppy.sh/ss/18144379/c40c)
 
