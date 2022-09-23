@@ -48,6 +48,9 @@
 # [tekkito+vaxei](https://waa.ai/f2Zn)
 ![](https://osu.ppy.sh/ss/17973033/4209)
 
+# [- # Tashkent v1.0 Non-weeb](https://waa.ai/f6zK)
+![](https://osu.ppy.sh/ss/18144343/dddc)
+
 # [- # [神里綾華] Ayaka -](https://waa.ai/f6zU)
 ![](https://osu.ppy.sh/ss/18144342/7598)
 
