@@ -150,6 +150,9 @@
 # [beep](https://waa.ai/q7pD)
 ![](https://osu.ppy.sh/ss/17351759/e6db)
 
+# [azerino instafade](https://waa.ai/f6z1)
+![](https://osu.ppy.sh/ss/18144412/971b)
+
 # [Amaestricowo](https://waa.ai/q7pK)
 ![](https://osu.ppy.sh/ss/17351614/4802)
 
