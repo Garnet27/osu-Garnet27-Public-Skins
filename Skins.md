@@ -48,6 +48,9 @@
 # [Aristia(Bettter+Edit)](https://waa.ai/fL9K)
 ![](https://osu.ppy.sh/ss/18331395/8d20)
 
+# [- 『EternuMonochromia』 - Varvalian](https://waa.ai/fL9R)
+![](https://osu.ppy.sh/ss/18331403/a407)
+
 # [tekkito+vaxei](https://waa.ai/f2Zn)
 ![](https://osu.ppy.sh/ss/17973033/4209)
 
