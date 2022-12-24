@@ -51,6 +51,9 @@
 # [- 『EternuMonochromia』 - Varvalian](https://waa.ai/fL9R)
 ![](https://osu.ppy.sh/ss/18331403/a407)
 
+# [- rainb0w -](https://waa.ai/fL92)
+![](https://osu.ppy.sh/ss/18331420/9ada)
+
 # [tekkito+vaxei](https://waa.ai/f2Zn)
 ![](https://osu.ppy.sh/ss/17973033/4209)
 
