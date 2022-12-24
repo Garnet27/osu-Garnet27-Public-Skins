@@ -45,6 +45,9 @@
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
+# [Aristia(Bettter+Edit)](https://waa.ai/fL9K)
+![](https://osu.ppy.sh/ss/18331395/8d20)
+
 # [tekkito+vaxei](https://waa.ai/f2Zn)
 ![](https://osu.ppy.sh/ss/17973033/4209)
 
