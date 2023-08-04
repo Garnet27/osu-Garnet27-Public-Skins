@@ -81,7 +81,7 @@
 ![](https://osu.ppy.sh/ss/18736976/9a28)
 
 # [-   『AIR』 Kamio Misuzu NM3](https://waa.ai/cv85)
-1[](https://osu.ppy.sh/ss/18736978/e98d)
+![](https://osu.ppy.sh/ss/18736978/e98d)
 
 # [-         azerstia](https://waa.ai/cv8b)
 ![](https://osu.ppy.sh/ss/18736969/bd21)
