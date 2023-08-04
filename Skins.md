@@ -50,6 +50,9 @@
 # [Seoul++ 16-9 Garnet27+Yaong](https://waa.ai/f278)
 ![](https://osu.ppy.sh/ss/17973222/5bf2)
 
+# [-    《Azerino》 - 『 東方Project 』 Paper Touhou Project  -](https://waa.ai/cv8r)
+![](https://osu.ppy.sh/ss/18736976/9a28)
+
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
