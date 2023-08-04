@@ -2,8 +2,6 @@
 
 #
 
-#
-
 # [《Oka》 TunaYugen+-Garnet27's Special Satono Edit](https://waa.ai/fAIW)
 ![](https://osu.ppy.sh/ss/18398753/ca53)
 
