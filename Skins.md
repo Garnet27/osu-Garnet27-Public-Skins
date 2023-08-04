@@ -5,6 +5,7 @@
 
 # [《Oka》 HDDT Champion 2.0+-Garnet27's Special Satono Edit](https://waa.ai/fAIi)
 ![](https://osu.ppy.sh/ss/18398755/749a)
+
 # [- #♧ 潤羽るしあ Uruha Rushia ♧# -](https://waa.ai/tNmM)
 ![](https://osu.ppy.sh/ss/17745873/5756)
 
@@ -28,6 +29,12 @@
 
 # [ZeisenDASH Edit](https://waa.ai/uVSR)
 ![](https://osu.ppy.sh/ss/17351675/d59b)
+
+# [Garnet27+-gameplay Recolor](https://waa.ai/cvWO)
+![](https://osu.ppy.sh/ss/18737034/eb5c_)
+
+# [Garnet27+-gameplay Soul](https://waa.ai/cvW3)
+![](https://osu.ppy.sh/ss/18737031/f019)
 
 # [Garnet27+-gameplay maliszewski](https://waa.ai/fL9Y)
 ![](https://osu.ppy.sh/ss/18331524/6c30)
