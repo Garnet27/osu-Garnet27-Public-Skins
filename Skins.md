@@ -50,6 +50,9 @@
 # [Seoul++ 16-9 Garnet27+Yaong](https://waa.ai/f278)
 ![](https://osu.ppy.sh/ss/17973222/5bf2)
 
+# [Rafislite](https://waa.ai/cvWk)
+![](https://osu.ppy.sh/ss/18737007/34f1)
+
 # [[enri] tekkito2](https://waa.ai/cv8G)
 ![](https://osu.ppy.sh/ss/18736986/7679)
 
@@ -121,6 +124,9 @@
 
 # [Osu!ge-chan](https://waa.ai/fL9g)
 ![](https://osu.ppy.sh/ss/18331499/0c2a)
+
+# [Rafis +HDDT Mr Krabs](https://waa.ai/cvWv)
+![](https://osu.ppy.sh/ss/18737005/94b5)
 
 # [- 『XooMoon』 - Lite](https://waa.ai/f6z2)
 ![](https://osu.ppy.sh/ss/18144362/c789)
@@ -199,6 +205,9 @@
 
 # [Shige+Azer Private ver](https://waa.ai/q7p0)
 ![](https://osu.ppy.sh/ss/17351443/8ac8)
+
+# [Momoko](https://waa.ai/cvWj)
+![](https://osu.ppy.sh/ss/18737010/8b80)
 
 # [- 『Kokoro』 Touhou on osu! -](https://waa.ai/f27i)
 ![](https://osu.ppy.sh/ss/17973226/5030)
