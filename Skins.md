@@ -110,6 +110,9 @@
 # [-#KW-! If there was an endpoint](https://waa.ai/fL9I)
 ![](https://osu.ppy.sh/ss/18331444/3525)
 
+# [「sigma」- GAME OVER (Performance Gameplay)](https://waa.ai/cv8n)
+![](https://osu.ppy.sh/ss/18736982/68e4)
+
 # [Osu!ge-chan](https://waa.ai/fL9g)
 ![](https://osu.ppy.sh/ss/18331499/0c2a)
 
