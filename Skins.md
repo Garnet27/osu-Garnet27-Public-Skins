@@ -53,8 +53,11 @@
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
-# [-         azerstia]https://waa.ai/cv8b
+# [-         azerstia](https://waa.ai/cv8b)
 ![](https://osu.ppy.sh/ss/18736969/bd21)
+
+# [₍ᐢ. ̫ .ᐢ₎](https://waa.ai/cv8A)
+![](https://osu.ppy.sh/ss/18736972/eaa7)
 
 # [Aristia(Bettter+Edit)](https://waa.ai/fL9K)
 ![](https://osu.ppy.sh/ss/18331395/8d20)
