@@ -35,7 +35,7 @@
 ![](https://osu.ppy.sh/ss/17351675/d59b)
 
 # [Garnet27+-gameplay Recolor](https://waa.ai/cvWO)
-![](https://osu.ppy.sh/ss/18737034/eb5c_)
+![](https://osu.ppy.sh/ss/18737034/eb5c)
 
 # [Garnet27+-gameplay Soul](https://waa.ai/cvW3)
 ![](https://osu.ppy.sh/ss/18737031/f019)
