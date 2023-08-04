@@ -53,8 +53,17 @@
 # [Rafislite](https://waa.ai/cvWk)
 ![](https://osu.ppy.sh/ss/18737007/34f1)
 
+# [tekitto2](https://waa.ai/cvWa)
+![](https://osu.ppy.sh/ss/18737019/0f41)
+
 # [[enri] tekkito2](https://waa.ai/cv8G)
 ![](https://osu.ppy.sh/ss/18736986/7679)
+
+# [[enri] tekkito2 Soul](https://waa.ai/cvWX)
+![](https://osu.ppy.sh/ss/18737022/e87d)
+
+# [tekittodefault](https://waa.ai/cvWo)
+![](https://osu.ppy.sh/ss/18737016/aa5d)
 
 # [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
