@@ -1,5 +1,7 @@
 # Garnet27 Public Skin Compilation
 
+# ※I'm not the author of this skins. I don't have copyright of all these skins. I made this collection to keep in reserve my personal favorite skins.
+
 # [《Oka》 TunaYugen+-Garnet27's Special Satono Edit](https://waa.ai/fAIW)
 ![](https://osu.ppy.sh/ss/18398753/ca53)
 
