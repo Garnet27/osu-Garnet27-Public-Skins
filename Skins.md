@@ -182,6 +182,9 @@
 # [Trinoline -Zane-](https://waa.ai/fCjJ)
 ![](https://osu.ppy.sh/ss/17745819/abd6)
 
+# [Chitanda](https://waa.ai/cvW4)
+![](https://osu.ppy.sh/ss/18736994/16b9)
+
 # [#azr8technocandy](https://waa.ai/q7pV)
 ![](https://osu.ppy.sh/ss/17351560/46dc)
 
