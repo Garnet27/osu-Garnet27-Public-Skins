@@ -2,7 +2,7 @@
 
 #
 
-# ※ I'm not the author of this skins. I don't have copyright of all these skins. I made this collection to keep in reserve my personal favorite skins.
+# ※ I'm not the author of these skins. I don't have copyright of all these skins. I made this collection to keep in reserve my personal favorite skins.
 
 #
 
