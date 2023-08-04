@@ -20,7 +20,7 @@
 # [- #◈ [TAKA]+Tobisawa Misaki ◈# - Final](https://waa.ai/qYXd)
 ![](https://osu.ppy.sh/ss/17353971/0813)
 
-# [- #◈ [TAKA]+Tobisawa Misaki ◈# - Rafis Edit](https://waa.ai/q7p5)
+# [- #◈ [TAKA]+Tobisawa Misaki ◈# - Rafis Edit](https://waa.ai/cv8L)
 ![](https://osu.ppy.sh/ss/17351962/5eb4)
 
 # [- #◈ [TAKA]+Tobisawa Misaki ◈# -](https://skins.osuck.net/index.php?newsid=894)
