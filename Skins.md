@@ -59,6 +59,9 @@
 # [Seoul++ 16-9 Garnet27+Yaong](https://waa.ai/f278)
 ![](https://osu.ppy.sh/ss/17973222/5bf2)
 
+# [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
+![](https://osu.ppy.sh/ss/17351382/7f0d)
+
 # [Rafislite](https://waa.ai/cvWk)
 ![](https://osu.ppy.sh/ss/18737007/34f1)
 
@@ -73,9 +76,6 @@
 
 # [tekittodefault](https://waa.ai/cvWo)
 ![](https://osu.ppy.sh/ss/18737016/aa5d)
-
-# [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
-![](https://osu.ppy.sh/ss/17351382/7f0d)
 
 # [-    《Azerino》 - 『 東方Project 』 Paper Touhou Project  -](https://waa.ai/cv8r)
 ![](https://osu.ppy.sh/ss/18736976/9a28)
