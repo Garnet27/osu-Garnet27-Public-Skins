@@ -21,7 +21,6 @@
 ![](https://osu.ppy.sh/ss/17351494/c021)
 
 # [- #❈ 春日 未来 Kasuga Mirai ❈# - Rework](https://waa.ai/coY4)
-![]
 
 # [- #❈ 春日 未来 Kasuga Mirai ❈# -](https://waa.ai/ejVT)
 ![](https://osu.ppy.sh/ss/17351478/882f)
