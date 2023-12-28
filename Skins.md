@@ -5,6 +5,9 @@
 # [- #ϟ タマモクロス Tamamo Cross ϟ# -](https://waa.ai/cktS)
 ![](https://osu.ppy.sh/ss/18795411/b65f)
 
+# [《Oka》 TunaYugen+-Garnet27's Special Satono Edit Rework](https://waa.ai/cuRN)
+![](https://osu.ppy.sh/ss/18963001/4354)
+
 # [《Oka》 TunaYugen+-Garnet27's Special Satono Edit](https://waa.ai/fAIW)
 ![](https://osu.ppy.sh/ss/18398753/ca53)
 
