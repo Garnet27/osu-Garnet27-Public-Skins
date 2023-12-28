@@ -76,6 +76,15 @@
 
 #
 
+# [Maliszerino](https://waa.ai/cuRL)
+![](https://osu.ppy.sh/ss/18962991/39ff)
+
+# [Tekkitorian](https://waa.ai/cuRZ)
+![](https://osu.ppy.sh/ss/18962992/c7fc)
+
+# [Tekkito+-Garnet27](https://waa.ai/cuRY)
+![](https://osu.ppy.sh/ss/18962998/314c)
+
 # [Rafislite](https://waa.ai/cvWk)
 ![](https://osu.ppy.sh/ss/18737007/34f1)
 
