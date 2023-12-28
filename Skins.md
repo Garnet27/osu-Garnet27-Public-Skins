@@ -47,6 +47,9 @@
 # [Garnet27+-gameplay Soul](https://waa.ai/cvW3)
 ![](https://osu.ppy.sh/ss/18737031/f019)
 
+# [Maliszerino+-Garnet27](https://waa.ai/cuRh)
+![](https://osu.ppy.sh/ss/18963000/a2c1)
+
 # [Garnet27+-gameplay maliszewski](https://waa.ai/fL9Y)
 ![](https://osu.ppy.sh/ss/18331524/6c30)
 
