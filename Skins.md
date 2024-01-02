@@ -5,6 +5,12 @@
 # [- #ϟ タマモクロス Tamamo Cross ϟ# -](https://waa.ai/cktS)
 ![](https://osu.ppy.sh/ss/18795411/b65f)
 
+# [- Seoul v10+- BaBa Konomi Edit](https://waa.ai/cuiy)
+![](https://osu.ppy.sh/ss/18970896/7793)
+
+# [- Seoul v10+- BaBa Konomi Edit for EZ](https://waa.ai/cuiw)
+![](https://osu.ppy.sh/ss/18970897/f6cb)
+
 # [《Oka》 TunaYugen+-Garnet27's Special Satono Edit Rework](https://waa.ai/cuRN)
 ![](https://osu.ppy.sh/ss/18963001/4354)
 
