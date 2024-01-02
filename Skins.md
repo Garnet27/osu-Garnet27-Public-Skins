@@ -76,6 +76,9 @@
 
 #
 
+# [Tekkito+WorstHR](https://waa.ai/cui0)
+![](https://osu.ppy.sh/ss/18970542/b82c)
+
 # [Maliszerino](https://waa.ai/cuRL)
 ![](https://osu.ppy.sh/ss/18962991/39ff)
 
