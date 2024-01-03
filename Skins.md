@@ -82,6 +82,9 @@
 
 #
 
+# [lugiainstafadelite](https://waa.ai/cuD9)
+![](https://osu.ppy.sh/ss/18972155/1f5a)
+
 # [Tekkito+WorstHR](https://waa.ai/cui0)
 ![](https://osu.ppy.sh/ss/18970542/b82c)
 
