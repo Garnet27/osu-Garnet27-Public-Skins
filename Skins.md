@@ -47,6 +47,10 @@
 # [ZeisenDASH Edit](https://waa.ai/uVSR)
 ![](https://osu.ppy.sh/ss/17351675/d59b)
 
+
+# [Garnet27+-gameplay Pure Revisit](https://waa.ai/cuLG)
+![](https://osu.ppy.sh/ss/18984454/90d4)
+
 # [Garnet27+-gameplay Recolor](https://waa.ai/cvWO)
 ![](https://osu.ppy.sh/ss/18737034/eb5c)
 
