@@ -2,6 +2,10 @@
 
 #
 
+# [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko Edit]https://waa.ai/cJfH)
+
+# [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko DT Edit](https://waa.ai/cJfy)
+
 # [- #ϟ タマモクロス Tamamo Cross ϟ# -](https://waa.ai/cktS)
 ![](https://osu.ppy.sh/ss/18795411/b65f)
 
