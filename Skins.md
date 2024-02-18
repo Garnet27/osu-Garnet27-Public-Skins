@@ -2,7 +2,7 @@
 
 #
 
-# [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko Edit]https://waa.ai/cJfH)
+# [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko Edit](https://waa.ai/cJfH)
 
 # [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko DT Edit](https://waa.ai/cJfy)
 
