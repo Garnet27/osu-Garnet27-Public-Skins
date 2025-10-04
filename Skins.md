@@ -6,13 +6,9 @@
 ![](https://osu.ppy.sh/ss/19755465/ae22)
 ![](https://osu.ppy.sh/ss/19755446/51ea)
 
-#
-
 # [- # ஃ°.‧ 古手梨花 Furude Rika ‧.°ஃ # -](https://waa.ai/Vvux)
 ![](https://osu.ppy.sh/ss/19755463/c98c)
 ![](https://osu.ppy.sh/ss/19755448/6954)
-
-#
 
 # [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko Edit](https://waa.ai/cJfH)
 
