@@ -3,7 +3,7 @@
 #
 
 # [- # ஃ°.‧ 古手羽入 Furude Hanyuu ‧.°ஃ # -](https://waa.ai/Vvuu)
-1[](https://osu.ppy.sh/ss/19755465/ae22)
+![](https://osu.ppy.sh/ss/19755465/ae22)
 ![](https://osu.ppy.sh/ss/19755446/51ea)
 
 
