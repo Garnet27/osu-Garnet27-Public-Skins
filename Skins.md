@@ -25,9 +25,11 @@
 ![](https://osu.ppy.sh/ss/18970897/f6cb)
 
 # [《Oka》 TunaYugen+-Garnet27's Special Satono Edit Rework](https://waa.ai/cuRN)
+![](https://osu.ppy.sh/ss/19771002/8f8f)
 ![](https://osu.ppy.sh/ss/18963001/4354)
 
 # [《Oka》 TunaYugen+-Garnet27's Special Satono Edit](https://waa.ai/fAIW)
+![](https://osu.ppy.sh/ss/19771002/8f8f)
 ![](https://osu.ppy.sh/ss/18398753/ca53)
 
 # [《Oka》 HDDT Champion 2.0+-Garnet27's Special Satono Edit](https://waa.ai/fAIi)
