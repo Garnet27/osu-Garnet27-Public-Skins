@@ -23,9 +23,11 @@
 ![](https://osu.ppy.sh/ss/18795411/b65f)
 
 # [- Seoul v10+- BaBa Konomi Edit](https://waa.ai/cuD4)
+![](https://osu.ppy.sh/ss/19771012/7479)
 ![](https://osu.ppy.sh/ss/18971677/c9e4)
 
 # [- Seoul v10+- BaBa Konomi Edit for EZ](https://waa.ai/cuiw)
+![](https://osu.ppy.sh/ss/19771012/7479)
 ![](https://osu.ppy.sh/ss/18970897/f6cb)
 
 # [《Oka》 TunaYugen+-Garnet27's Special Satono Edit Rework](https://waa.ai/cuRN)
