@@ -47,29 +47,35 @@
 ![](https://osu.ppy.sh/ss/17745873/5756)
 
 # [- #❃ 北上麗花 Kitakami Reika ❃# - V2](https://waa.ai/t1dK)
+![](https://osu.ppy.sh/ss/19771019/42ae)
 ![](https://osu.ppy.sh/ss/17351458/e455)
 
 # [- #❃ 北上麗花 Kitakami Reika ❃# -](https://waa.ai/q7p9)
+![](https://osu.ppy.sh/ss/19771019/42ae)
 ![](https://osu.ppy.sh/ss/17351494/c021)
 
 # [- #❈ 春日 未来 Kasuga Mirai ❈# - Rework](https://waa.ai/coYk)
+![](https://osu.ppy.sh/ss/19771022/2c80)
 ![](https://osu.ppy.sh/ss/18907403/fe7e)
 
 # [- #❈ 春日 未来 Kasuga Mirai ❈# -](https://waa.ai/ejVT)
+![](https://osu.ppy.sh/ss/19771022/2c80)
 ![](https://osu.ppy.sh/ss/17351478/882f)
 
 # [- #◈ [TAKA]+Tobisawa Misaki ◈# - Final](https://waa.ai/qYXd)
+![](https://osu.ppy.sh/ss/19771025/0b8a)
 ![](https://osu.ppy.sh/ss/17353971/0813)
 
 # [- #◈ [TAKA]+Tobisawa Misaki ◈# - Rafis Edit](https://waa.ai/cv8L)
+![](https://osu.ppy.sh/ss/19771025/0b8a)
 ![](https://osu.ppy.sh/ss/17351962/5eb4)
 
 # [- #◈ [TAKA]+Tobisawa Misaki ◈# -](https://skins.osuck.net/index.php?newsid=894)
+![](https://osu.ppy.sh/ss/19771025/0b8a)
 ![](https://osu.ppy.sh/ss/17351393/55ea)
 
 # [ZeisenDASH Edit](https://waa.ai/uVSR)
 ![](https://osu.ppy.sh/ss/17351675/d59b)
-
 
 # [Garnet27+-gameplay Pure Revisit](https://waa.ai/cuLG)
 ![](https://osu.ppy.sh/ss/18984454/90d4)
