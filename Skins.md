@@ -15,6 +15,7 @@
 # [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko DT Edit](https://waa.ai/cJfy)
 
 # [- #ϟ タマモクロス Tamamo Cross ϟ# -](https://waa.ai/cktS)
+![](https://osu.ppy.sh/ss/19770997/582f)
 ![](https://osu.ppy.sh/ss/18795411/b65f)
 
 # [- Seoul v10+- BaBa Konomi Edit](https://waa.ai/cuD4)
