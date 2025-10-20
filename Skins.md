@@ -11,8 +11,12 @@
 ![](https://osu.ppy.sh/ss/19755448/6954)
 
 # [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko Edit](https://waa.ai/cJfH)
+![](https://osu.ppy.sh/ss/19771006/1ea6)
+![](https://osu.ppy.sh/ss/19771007/2a87)
 
 # [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko DT Edit](https://waa.ai/cJfy)
+![](https://osu.ppy.sh/ss/19771006/1ea6)
+![](https://osu.ppy.sh/ss/19771008/449b)
 
 # [- #ϟ タマモクロス Tamamo Cross ϟ# -](https://waa.ai/cktS)
 ![](https://osu.ppy.sh/ss/19770997/582f)
