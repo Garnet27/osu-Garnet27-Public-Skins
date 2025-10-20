@@ -142,9 +142,6 @@
 # [-    《Azerino》 - 『 東方Project 』 Paper Touhou Project  -](https://waa.ai/cv8r)
 ![](https://osu.ppy.sh/ss/18736976/9a28)
 
-# [-   『AIR』 Kamio Misuzu NM3](https://waa.ai/cv85)
-![](https://osu.ppy.sh/ss/18736978/e98d)
-
 # [-         azerstia](https://waa.ai/cv8b)
 ![](https://osu.ppy.sh/ss/18736969/bd21)
 
@@ -162,9 +159,6 @@
 
 # [- !Cookie](https://waa.ai/fL9i)
 ![](https://osu.ppy.sh/ss/18331470/0458)
-
-# [- 『EternuMonochromia』 - Varvalian](https://waa.ai/fL9R)
-![](https://osu.ppy.sh/ss/18331403/a407)
 
 # [- rainb0w -](https://waa.ai/fL92)
 ![](https://osu.ppy.sh/ss/18331420/9ada)
@@ -196,12 +190,6 @@
 # [- # [神里綾華] Ayaka -](https://waa.ai/f6zU)
 ![](https://osu.ppy.sh/ss/18144342/7598)
 
-# [-#KW-! If there was an endpoint](https://waa.ai/fL9I)
-![](https://osu.ppy.sh/ss/18331444/3525)
-
-# [「sigma」- GAME OVER (Performance Gameplay)](https://waa.ai/cv8n)
-![](https://osu.ppy.sh/ss/18736982/68e4)
-
 # [Osu!ge-chan](https://waa.ai/fL9g)
 ![](https://osu.ppy.sh/ss/18331499/0c2a)
 
@@ -210,21 +198,6 @@
 
 # [- 『XooMoon』 - Lite](https://waa.ai/f6z2)
 ![](https://osu.ppy.sh/ss/18144362/c789)
-
-# [-  ☾ JΩ - {Full-Ω} - 『Chocopuffs』 ☽](https://waa.ai/fL9W)
-![](https://osu.ppy.sh/ss/18331487/bf9d)
-
-# [# - [HRK] - 百鬼ネ DECADENCE](https://waa.ai/f6zB)
-![](https://osu.ppy.sh/ss/18144374/f2b6)
-
-# [- #-K- HOSHIMACHI SUISEI - LUCID DREAM](https://waa.ai/f6zR)
-![](https://osu.ppy.sh/ss/18144351/9584)
-
-# [« ★ F u w a ★ »](https://waa.ai/f6zD)
-![](https://osu.ppy.sh/ss/18144394/4383)
-
-# [« prjct. X »](https://waa.ai/f6zd)
-![](https://osu.ppy.sh/ss/18144398/4790)
 
 # [-# [Kagerou Project] Kozakura Marry 小桜茉莉 #-](https://waa.ai/f6zI)
 ![](https://osu.ppy.sh/ss/18144377/0e7e)
@@ -292,9 +265,6 @@
 # [- 『Kokoro』 Touhou on osu! -](https://waa.ai/f27i)
 ![](https://osu.ppy.sh/ss/17973226/5030)
 
-# [wew lad](https://waa.ai/f27D)
-![](https://osu.ppy.sh/ss/17973239/4659)
-
 # [Joie's Seoul v9 x owoTuna + whale](https://waa.ai/f6zg)
 ![](https://osu.ppy.sh/ss/18144437/2232)
 
@@ -316,9 +286,6 @@
 # [New+Default+Skin_DT](https://waa.ai/fCju)
 ![](https://osu.ppy.sh/ss/17745713/be78)
 
-# [I'm Rafis - [HDDT] Gamma ↑Buff↑](https://waa.ai/q7pp)
-![](https://osu.ppy.sh/ss/17351836/ed0f)
-
 # [-aireudt Aesthetic Slider](https://waa.ai/fL9D)
 ![](https://osu.ppy.sh/ss/18331448/7976)
 
@@ -337,7 +304,7 @@
 # [Amaestricowo](https://waa.ai/q7pK)
 ![](https://osu.ppy.sh/ss/17351614/4802)
 
-# [Cookiezi 29 2018-03-18.osk](https://waa.ai/f274)
+# [Cookiezi 29 2018-03-18](https://waa.ai/f274)
 ![](https://osu.ppy.sh/ss/17973067/017a)
 
 # [Seoul++ 16-9 Toy](https://waa.ai/q7p2)
