@@ -39,9 +39,11 @@
 ![](https://osu.ppy.sh/ss/18398753/ca53)
 
 # [《Oka》 HDDT Champion 2.0+-Garnet27's Special Satono Edit](https://waa.ai/fAIi)
+![](https://osu.ppy.sh/ss/19771002/8f8f)
 ![](https://osu.ppy.sh/ss/18398755/749a)
 
 # [- #♧ 潤羽るしあ Uruha Rushia ♧# -](https://waa.ai/tNmM)
+![](https://osu.ppy.sh/ss/19771014/d25a)
 ![](https://osu.ppy.sh/ss/17745873/5756)
 
 # [- #❃ 北上麗花 Kitakami Reika ❃# - V2](https://waa.ai/t1dK)
