@@ -1,6 +1,8 @@
 # Garnet27 Public Skin Compilation
 
-
+# [- # ◜ᐝ.‧ 竜宮レナ Ryuugu Rena ‧.ᐝ◝ # -](https://waa.ai/VzIw)
+![](https://osu.ppy.sh/ss/19811553/e431)
+![](https://osu.ppy.sh/ss/19811549/5eca)
 
 # [- # ஃ°.‧ 古手羽入 Furude Hanyuu ‧.°ஃ # -](https://waa.ai/Vvuu)
 ![](https://osu.ppy.sh/ss/19755465/ae22)
