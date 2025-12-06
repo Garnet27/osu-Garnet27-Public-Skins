@@ -1,5 +1,5 @@
 # Garnet27 Public Skin Compilation (UPDATED 25-12-06)
-[osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/jgh0207)
+[osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/jgh0207) | Discord : garnet27
 
 # [- # ◜ᐝ.‧ 竜宮レナ Ryuugu Rena ‧.ᐝ◝ # -](https://waa.ai/VzIw)
 ![](https://osu.ppy.sh/ss/19811553/e431)
