@@ -8,9 +8,21 @@
 ![](https://osu.ppy.sh/ss/19755465/ae22)
 ![](https://osu.ppy.sh/ss/19755446/51ea)
 
+# [- # ஃ°.‧ 古手羽入 Furude Hanyuu 『AristiaHD』 ‧.°ஃ # -](https://waa.ai/Vzdd)
+![](https://osu.ppy.sh/ss/19755465/ae22)
+![](https://osu.ppy.sh/ss/19814829/d4b9)
+
 # [- # ஃ°.‧ 古手梨花 Furude Rika ‧.°ஃ # -](https://waa.ai/Vvux)
 ![](https://osu.ppy.sh/ss/19755463/c98c)
 ![](https://osu.ppy.sh/ss/19755448/6954)
+
+# [- # ஃ°.‧ 古手梨花 Furude Rika 『Rafis Aesthetic』‧.°ஃ # -] (https://waa.ai/Vzdi)
+![](https://osu.ppy.sh/ss/19755463/c98c)
+![](https://osu.ppy.sh/ss/19814827/6371)
+
+# [- # ஃ°.‧ 古手梨花 Furude Rika 『Vaxei』 ‧.°ஃ # -] (https://waa.ai/VzdD)
+![](https://osu.ppy.sh/ss/19755463/c98c)
+![](https://osu.ppy.sh/ss/19814828/b76a)
 
 # [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko Edit](https://waa.ai/cJfH)
 ![](https://osu.ppy.sh/ss/19771006/1ea6)
