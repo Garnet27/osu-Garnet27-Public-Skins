@@ -16,11 +16,11 @@
 ![](https://osu.ppy.sh/ss/19755463/c98c)
 ![](https://osu.ppy.sh/ss/19755448/6954)
 
-# [- # ஃ°.‧ 古手梨花 Furude Rika 『Rafis Aesthetic』‧.°ஃ # -] (https://waa.ai/Vzdi)
+# [- # ஃ°.‧ 古手梨花 Furude Rika 『Rafis Aesthetic』‧.°ஃ # -](https://waa.ai/Vzdi)
 ![](https://osu.ppy.sh/ss/19755463/c98c)
 ![](https://osu.ppy.sh/ss/19814827/6371)
 
-# [- # ஃ°.‧ 古手梨花 Furude Rika 『Vaxei』 ‧.°ஃ # -] (https://waa.ai/VzdD)
+# [- # ஃ°.‧ 古手梨花 Furude Rika 『Vaxei』 ‧.°ஃ # -](https://waa.ai/VzdD)
 ![](https://osu.ppy.sh/ss/19755463/c98c)
 ![](https://osu.ppy.sh/ss/19814828/b76a)
 
