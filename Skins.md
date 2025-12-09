@@ -1,4 +1,5 @@
 # Garnet27 Public Skin Compilation (UPDATED 25-12-06)
+![](https://i.ibb.co/QFxqN9wY/garnet27skin.png)
 [osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/jgh0207)
 Feel free to contact me
 
