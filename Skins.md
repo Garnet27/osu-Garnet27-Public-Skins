@@ -1,6 +1,6 @@
 # Garnet27 Public Skin Compilation (UPDATED 25-12-06)
 [osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/jgh0207)
-Feel free to contact me | Most of skin's theme is requested
+Feel free to contact me
 
 # [- # ◟ᐝ.‧ 園崎魅音 Sonozaki Mion ‧.ᐝ◞ # -](https://waa.ai/VzLf)
 ![](https://osu.ppy.sh/ss/19820223/90f1)
