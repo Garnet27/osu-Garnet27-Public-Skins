@@ -2,6 +2,15 @@
 [osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/jgh0207)
 Feel free to contact me
 
+# [- # ◟ᐝ.‧ 園崎魅音 Sonozaki Mion ‧.ᐝ◞ # -](https://waa.ai/VzLf)
+![](https://osu.ppy.sh/ss/19820223/90f1)
+![](https://osu.ppy.sh/ss/19820224/72a8)
+
+
+# [- # ╰ ᐝ.‧ 園崎詩音 Sonozaki Shion ‧.ᐝ ╯ # -](https://waa.ai/VzLC)
+![](https://osu.ppy.sh/ss/19820221/ac75)
+![](https://osu.ppy.sh/ss/19820227/15cb)
+
 # [- # ◜ᐝ.‧ 竜宮レナ Ryuugu Rena ‧.ᐝ◝ # -](https://waa.ai/VzIw)
 ![](https://osu.ppy.sh/ss/19811553/e431)
 ![](https://osu.ppy.sh/ss/19811549/5eca)
