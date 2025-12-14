@@ -1,5 +1,5 @@
 # Garnet27 Public Skin Compilation (UPDATED 25-12-14)
-[osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/jgh0207)
+[osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/garnet27osu)
 Feel free to contact me
 
 # [- # ◟ᐝ.‧ 園崎魅音 Sonozaki Mion ‧.ᐝ◞ # -](https://waa.ai/VzLf)
