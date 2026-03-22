@@ -216,38 +216,14 @@ Feel free to contact me
 # [SHIRONEKO 1.0](https://waa.ai/fL96)
 ![](https://osu.ppy.sh/ss/18331498/d053)
 
-# [DoomTwo v0.36 - Rainbow](https://waa.ai/fL9P)
-![](https://osu.ppy.sh/ss/18331482/ce75)
-
-# [- # Tashkent v1.0 Non-weeb](https://waa.ai/f6zK)
-![](https://osu.ppy.sh/ss/18144343/dddc)
-
-# [« Minimalist 2.0 »](https://waa.ai/fL91)
-![](https://osu.ppy.sh/ss/18331457/4cb8)
-
-# [- # [神里綾華] Ayaka -](https://waa.ai/f6zU)
-![](https://osu.ppy.sh/ss/18144342/7598)
-
-# [Osu!ge-chan](https://waa.ai/fL9g)
-![](https://osu.ppy.sh/ss/18331499/0c2a)
-
 # [Rafis +HDDT Mr Krabs](https://waa.ai/cvWv)
 ![](https://osu.ppy.sh/ss/18737005/94b5)
 
 # [- 『XooMoon』 - Lite](https://waa.ai/f6z2)
 ![](https://osu.ppy.sh/ss/18144362/c789)
 
-# [-# [Kagerou Project] Kozakura Marry 小桜茉莉 #-](https://waa.ai/f6zI)
-![](https://osu.ppy.sh/ss/18144377/0e7e)
-
 # [- [AK] Akshiro v1.0 (aristia) -](https://waa.ai/f6zQ)
 ![](https://osu.ppy.sh/ss/18144354/09dd)
-
-# [Hortus (Shiki)](https://waa.ai/f6z6)
-![](https://osu.ppy.sh/ss/18144430/1e8a)
-
-# [《Oka》 khz](https://waa.ai/f6z8)
-![](https://osu.ppy.sh/ss/18144379/c40c)
 
 # [mojobojo](https://waa.ai/f6zN)
 ![](https://osu.ppy.sh/ss/18144447/df58)
@@ -296,12 +272,6 @@ Feel free to contact me
 
 # [Shige+Azer Private ver](https://waa.ai/q7p0)
 ![](https://osu.ppy.sh/ss/17351443/8ac8)
-
-# [Momoko](https://waa.ai/cvWj)
-![](https://osu.ppy.sh/ss/18737010/8b80)
-
-# [- 『Kokoro』 Touhou on osu! -](https://waa.ai/f27i)
-![](https://osu.ppy.sh/ss/17973226/5030)
 
 # [Joie's Seoul v9 x owoTuna + whale](https://waa.ai/f6zg)
 ![](https://osu.ppy.sh/ss/18144437/2232)
@@ -375,7 +345,7 @@ Feel free to contact me
 # [- JesusOmega {Holy Fuck} 『Planets』 -](https://waa.ai/f272)
 ![](https://osu.ppy.sh/ss/17973219/93df)
 
-# [William Smith (slap sfx edit](https://waa.ai/f27R)
+# [William Smith (slap sfx edit)](https://waa.ai/f27R)
 ![](https://osu.ppy.sh/ss/17973210/7fe4)
 
 # [ThinkingWithBlobs](https://waa.ai/q7p7)
