@@ -2,6 +2,14 @@
 [osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/garnet27osu)
 Feel free to contact me
 
+# [- # 彡ᐝ❅ 『乾紗凪 Inui Sana』 ❅ᐝ彡 # -](https://waa.ai/VoGY)
+![](https://osu.ppy.sh/ss/19907365/2572)
+![](https://osu.ppy.sh/ss/19907370/1d7e)
+
+# [- # 彡ᐝ❅ 『乾紗凪 Inui Sana』 ❅ᐝ彡 # - NM](https://waa.ai/VoGL)
+![](https://osu.ppy.sh/ss/19907365/2572)
+![](https://osu.ppy.sh/ss/19907367/e8a1)
+
 # [- # ◟ᐝ.‧ 園崎魅音 Sonozaki Mion ‧.ᐝ◞ # -](https://waa.ai/VzLf)
 ![](https://osu.ppy.sh/ss/19820223/90f1)
 ![](https://osu.ppy.sh/ss/19820224/72a8)
