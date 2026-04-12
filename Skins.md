@@ -1,148 +1,153 @@
-# Garnet27 Public Skin Compilation (UPDATED 26-03-23)
-[osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/garnet27osu)
-Feel free to contact me
+# Garnet27 Public Skin Compilation (UPDATED 26-04-12)
 
-# [- # 彡ᐝ❅ 『乾紗凪 Inui Sana』 ❅ᐝ彡 # -](https://waa.ai/VoGY)
+## [osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/garnet27osu)
+
+- this compilation is just made for my own osu! skin storage, also I don't have all the copyrights of every skin.
+- Some skins are designed by me, others don't.
+- Skins tagged with the symbol (💟) were made by me
+<p align="center">
+
+# 💟 [- # 彡ᐝ❅ 『乾紗凪 Inui Sana』 ❅ᐝ彡 # -](https://waa.ai/VoGY)
 ![](https://osu.ppy.sh/ss/19907365/2572)
 ![](https://osu.ppy.sh/ss/19907370/1d7e)
 
-# [- # 彡ᐝ❅ 『乾紗凪 Inui Sana』 ❅ᐝ彡 # - NM](https://waa.ai/VoGL)
+# 💟 [- # 彡ᐝ❅ 『乾紗凪 Inui Sana』 ❅ᐝ彡 # - NM](https://waa.ai/VoGL)
 ![](https://osu.ppy.sh/ss/19907365/2572)
 ![](https://osu.ppy.sh/ss/19907367/e8a1)
 
-# [- # ◟ᐝ.‧ 園崎魅音 Sonozaki Mion ‧.ᐝ◞ # -](https://waa.ai/VzLf)
+# 💟 [- # ◟ᐝ.‧ 園崎魅音 Sonozaki Mion ‧.ᐝ◞ # -](https://waa.ai/VzLf)
 ![](https://osu.ppy.sh/ss/19820223/90f1)
 ![](https://osu.ppy.sh/ss/19820224/72a8)
 
-# [- # ╰ ᐝ.‧ 園崎詩音 Sonozaki Shion ‧.ᐝ ╯ # -](https://waa.ai/VzLC)
+# 💟 [- # ╰ ᐝ.‧ 園崎詩音 Sonozaki Shion ‧.ᐝ ╯ # -](https://waa.ai/VzLC)
 ![](https://osu.ppy.sh/ss/19820221/ac75)
 ![](https://osu.ppy.sh/ss/19820227/15cb)
 
-# [- # ◜ᐝ.‧ 竜宮レナ Ryuugu Rena ‧.ᐝ◝ # -](https://waa.ai/VzIw)
+# 💟 [- # ◜ᐝ.‧ 竜宮レナ Ryuugu Rena ‧.ᐝ◝ # -](https://waa.ai/VzIw)
 ![](https://osu.ppy.sh/ss/19811553/e431)
 ![](https://osu.ppy.sh/ss/19811549/5eca)
 
-# [- # ஃ°.‧ 古手羽入 Furude Hanyuu ‧.°ஃ # -](https://waa.ai/Vvuu)
+# 💟 [- # ஃ°.‧ 古手羽入 Furude Hanyuu ‧.°ஃ # -](https://waa.ai/Vvuu)
 ![](https://osu.ppy.sh/ss/19755465/ae22)
 ![](https://osu.ppy.sh/ss/19755446/51ea)
 
-# [- # ஃ°.‧ 古手羽入 Furude Hanyuu 『AristiaHD』 ‧.°ஃ # -](https://waa.ai/Vzdd)
+# 💟 [- # ஃ°.‧ 古手羽入 Furude Hanyuu 『AristiaHD』 ‧.°ஃ # -](https://waa.ai/Vzdd)
 ![](https://osu.ppy.sh/ss/19755465/ae22)
 ![](https://osu.ppy.sh/ss/19814829/d4b9)
 
-# [- # ஃ°.‧ 古手梨花 Furude Rika ‧.°ஃ # -](https://waa.ai/Vvux)
+# 💟 [- # ஃ°.‧ 古手梨花 Furude Rika ‧.°ஃ # -](https://waa.ai/Vvux)
 ![](https://osu.ppy.sh/ss/19755463/c98c)
 ![](https://osu.ppy.sh/ss/19755448/6954)
 
-# [- # ஃ°.‧ 古手梨花 Furude Rika 『Rafis Aesthetic』‧.°ஃ # -](https://waa.ai/Vzdi)
+# 💟 [- # ஃ°.‧ 古手梨花 Furude Rika 『Rafis Aesthetic』‧.°ஃ # -](https://waa.ai/Vzdi)
 ![](https://osu.ppy.sh/ss/19755463/c98c)
 ![](https://osu.ppy.sh/ss/19814827/6371)
 
-# [- # ஃ°.‧ 古手梨花 Furude Rika 『Vaxei』 ‧.°ஃ # -](https://waa.ai/VzdD)
+# 💟 [- # ஃ°.‧ 古手梨花 Furude Rika 『Vaxei』 ‧.°ஃ # -](https://waa.ai/VzdD)
 ![](https://osu.ppy.sh/ss/19755463/c98c)
 ![](https://osu.ppy.sh/ss/19814828/b76a)
 
-# [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko Edit](https://waa.ai/cJfH)
+# 💟 [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko Edit](https://waa.ai/cJfH)
 ![](https://osu.ppy.sh/ss/19771006/1ea6)
 ![](https://osu.ppy.sh/ss/19771007/2a87)
 
-# [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko DT Edit](https://waa.ai/cJfy)
+# 💟 [《Oka》 TunaYugen+-Garnet27's Special Tsushima Yoshiko DT Edit](https://waa.ai/cJfy)
 ![](https://osu.ppy.sh/ss/19771006/1ea6)
 ![](https://osu.ppy.sh/ss/19771008/449b)
 
-# [- #ϟ タマモクロス Tamamo Cross ϟ# -](https://waa.ai/cktS)
+# 💟 [- #ϟ タマモクロス Tamamo Cross ϟ# -](https://waa.ai/cktS)
 ![](https://osu.ppy.sh/ss/19770997/582f)
 ![](https://osu.ppy.sh/ss/18795411/b65f)
 
-# [- Seoul v10+- BaBa Konomi Edit](https://waa.ai/cuD4)
+# 💟 [- Seoul v10+- BaBa Konomi Edit](https://waa.ai/cuD4)
 ![](https://osu.ppy.sh/ss/19771012/7479)
 ![](https://osu.ppy.sh/ss/18971677/c9e4)
 
-# [- Seoul v10+- BaBa Konomi Edit for EZ](https://waa.ai/cuiw)
+# 💟 [- Seoul v10+- BaBa Konomi Edit for EZ](https://waa.ai/cuiw)
 ![](https://osu.ppy.sh/ss/19771012/7479)
 ![](https://osu.ppy.sh/ss/18970897/f6cb)
 
-# [《Oka》 TunaYugen+-Garnet27's Special Satono Edit Rework](https://waa.ai/cuRN)
+# 💟 [《Oka》 TunaYugen+-Garnet27's Special Satono Edit Rework](https://waa.ai/cuRN)
 ![](https://osu.ppy.sh/ss/19771002/8f8f)
 ![](https://osu.ppy.sh/ss/18963001/4354)
 
-# [《Oka》 TunaYugen+-Garnet27's Special Satono Edit](https://waa.ai/fAIW)
+# 💟 [《Oka》 TunaYugen+-Garnet27's Special Satono Edit](https://waa.ai/fAIW)
 ![](https://osu.ppy.sh/ss/19771002/8f8f)
 ![](https://osu.ppy.sh/ss/18398753/ca53)
 
-# [《Oka》 HDDT Champion 2.0+-Garnet27's Special Satono Edit](https://waa.ai/fAIi)
+# 💟 [《Oka》 HDDT Champion 2.0+-Garnet27's Special Satono Edit](https://waa.ai/fAIi)
 ![](https://osu.ppy.sh/ss/19771002/8f8f)
 ![](https://osu.ppy.sh/ss/18398755/749a)
 
-# [- #♧ 潤羽るしあ Uruha Rushia ♧# -](https://waa.ai/tNmM)
+# 💟 [- #♧ 潤羽るしあ Uruha Rushia ♧# -](https://waa.ai/tNmM)
 ![](https://osu.ppy.sh/ss/19771014/d25a)
 ![](https://osu.ppy.sh/ss/17745873/5756)
 
-# [- #❃ 北上麗花 Kitakami Reika ❃# - V2](https://waa.ai/t1dK)
+# 💟 [- #❃ 北上麗花 Kitakami Reika ❃# - V2](https://waa.ai/t1dK)
 ![](https://osu.ppy.sh/ss/19771019/42ae)
 ![](https://osu.ppy.sh/ss/17351458/e455)
 
-# [- #❃ 北上麗花 Kitakami Reika ❃# -](https://waa.ai/q7p9)
+# 💟 [- #❃ 北上麗花 Kitakami Reika ❃# -](https://waa.ai/q7p9)
 ![](https://osu.ppy.sh/ss/19771019/42ae)
 ![](https://osu.ppy.sh/ss/17351494/c021)
 
-# [- #❈ 春日 未来 Kasuga Mirai ❈# - Rework](https://waa.ai/coYk)
+# 💟 [- #❈ 春日 未来 Kasuga Mirai ❈# - Rework](https://waa.ai/coYk)
 ![](https://osu.ppy.sh/ss/19771022/2c80)
 ![](https://osu.ppy.sh/ss/18907403/fe7e)
 
-# [- #❈ 春日 未来 Kasuga Mirai ❈# -](https://waa.ai/ejVT)
+# 💟 [- #❈ 春日 未来 Kasuga Mirai ❈# -](https://waa.ai/ejVT)
 ![](https://osu.ppy.sh/ss/19771022/2c80)
 ![](https://osu.ppy.sh/ss/17351478/882f)
 
-# [- #◈ [TAKA]+Tobisawa Misaki ◈# - Final](https://waa.ai/qYXd)
+# 💟 [- #◈ [TAKA]+Tobisawa Misaki ◈# - Final](https://waa.ai/qYXd)
 ![](https://osu.ppy.sh/ss/19771025/0b8a)
 ![](https://osu.ppy.sh/ss/17353971/0813)
 
-# [- #◈ [TAKA]+Tobisawa Misaki ◈# - Rafis Edit](https://waa.ai/cv8L)
+# 💟 [- #◈ [TAKA]+Tobisawa Misaki ◈# - Rafis Edit](https://waa.ai/cv8L)
 ![](https://osu.ppy.sh/ss/19771025/0b8a)
 ![](https://osu.ppy.sh/ss/17351962/5eb4)
 
-# [- #◈ [TAKA]+Tobisawa Misaki ◈# -](https://skins.osuck.net/index.php?newsid=894)
+# 💟 [- #◈ [TAKA]+Tobisawa Misaki ◈# -](https://skins.osuck.net/index.php?newsid=894)
 ![](https://osu.ppy.sh/ss/19771025/0b8a)
 ![](https://osu.ppy.sh/ss/17351393/55ea)
 
-# [ZeisenDASH Edit](https://waa.ai/uVSR)
+# 💟 [ZeisenDASH Edit](https://waa.ai/uVSR)
 ![](https://osu.ppy.sh/ss/17351675/d59b)
 
-# [Garnet27+-gameplay Pure Revisit](https://waa.ai/cuLG)
+# 💟 [Garnet27+-gameplay Pure Revisit](https://waa.ai/cuLG)
 ![](https://osu.ppy.sh/ss/18984454/90d4)
 
-# [Garnet27+-gameplay Recolor](https://waa.ai/cvWO)
+# 💟 [Garnet27+-gameplay Recolor](https://waa.ai/cvWO)
 ![](https://osu.ppy.sh/ss/18737034/eb5c)
 
-# [Garnet27+-gameplay Soul](https://waa.ai/cvW3)
+# 💟 [Garnet27+-gameplay Soul](https://waa.ai/cvW3)
 ![](https://osu.ppy.sh/ss/18737031/f019)
 
-# [Maliszerino+-Garnet27](https://waa.ai/cuRh)
+# 💟 [Maliszerino+-Garnet27](https://waa.ai/cuRh)
 ![](https://osu.ppy.sh/ss/18963000/a2c1)
 
-# [Garnet27+-gameplay maliszewski](https://waa.ai/fL9Y)
+# 💟 [Garnet27+-gameplay maliszewski](https://waa.ai/fL9Y)
 ![](https://osu.ppy.sh/ss/18331524/6c30)
 
-# [Garnet27+-gameplay Tekkito](https://waa.ai/f276)
+# 💟 [Garnet27+-gameplay Tekkito](https://waa.ai/f276)
 ![](https://osu.ppy.sh/ss/17973280/a77a)
 
-# [Garnet27+-gameplay Pure](https://waa.ai/f2Zr)
+# 💟 [Garnet27+-gameplay Pure](https://waa.ai/f2Zr)
 ![](https://osu.ppy.sh/ss/17973023/5f2f)
 
-# [Garnet27+-gameplay refia](https://waa.ai/f271)
+# 💟 [Garnet27+-gameplay refia](https://waa.ai/f271)
 ![](https://osu.ppy.sh/ss/17973251/b275)
 
-# [Garnet27+-gameplay v2](https://waa.ai/TQrO)
+# 💟 [Garnet27+-gameplay v2](https://waa.ai/TQrO)
 ![](https://osu.ppy.sh/ss/17351525/5d81)
 
-# [Garnet27+-gameplay Trinoline](https://waa.ai/f27d)
+# 💟 [Garnet27+-gameplay Trinoline](https://waa.ai/f27d)
 ![](https://osu.ppy.sh/ss/17973246/32d2)
 
-# [Seoul++ 16-9 Garnet27+Yaong](https://waa.ai/f278)
+# 💟 [Seoul++ 16-9 Garnet27+Yaong](https://waa.ai/f278)
 ![](https://osu.ppy.sh/ss/17973222/5bf2)
 
-# [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
+# 💟 [焦茶▼ ティア125ま-34a](https://waa.ai/q7pO)
 ![](https://osu.ppy.sh/ss/17351382/7f0d)
 
 #
