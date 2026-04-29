@@ -2,7 +2,7 @@
 
 ## [osu! profile](https://osu.ppy.sh/users/10018531) | [twitch](https://www.twitch.tv/garnet27osu)
 
-- this compilation is just made for my own osu! skin storage, also I don't have all the copyrights of every skin.
+- This compilation is just made for my own osu! skin storage, also I don't have all the copyrights of every skin.
 - Some skins are designed by me, others don't.
 - Skins tagged with the symbol (💟) were made by me
 <p align="center">
